@@ -36,7 +36,7 @@
 <br/>
 
 ### 🐱 About Me 🐱
-  👋Hi, Welcome. I'm Jimin LEE 25 Years old.👋
+  👋Hi, Welcome. I'm Jimin LEE 24 Years old.👋
 
 <hr>
 
